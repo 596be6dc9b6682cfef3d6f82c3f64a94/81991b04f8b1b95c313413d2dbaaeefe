@@ -1,1 +1,1 @@
-Eventos.co.mz
+Eventspace.co.mz
